@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **official.samiulkhan@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1AWK0v0NFsd7Iww5hTraTrcIlOvCqYpDl/view?usp=share_link](https://drive.google.com/file/d/1AWK0v0NFsd7Iww5hTraTrcIlOvCqYpDl/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1o9tajGcMoEosIcvl4zzv6Tx5S9Yd_fiQ/view?usp=sharing](Resume)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
